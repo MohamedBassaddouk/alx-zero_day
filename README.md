@@ -1,1 +1,1 @@
-Sky is Limit
+Sky is limt
